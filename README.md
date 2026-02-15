@@ -3,6 +3,6 @@
 </p>
 
 <p align="center"><a href="https://zeokamii.atabook.org/">ATABOOK</a> 🍥 <a href="https://zeokamii.straw.page/">STRAWPAGE</a>
-
-
+<p align="center">
+Working on a new strawpage (●'◡'●)
 
