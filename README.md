@@ -1,3 +1,3 @@
-![download (18)](https://github.com/user-attachments/assets/5e2fe6df-a02b-45e3-bb04-8a3455a34967)
-
-
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/308c5242-7996-4caf-9231-6f698df6aa43" alt="Description of Image" width="500" height="500">
+</p>
