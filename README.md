@@ -18,7 +18,7 @@ Working on a new strawpage (●'◡'●)
 <p align="center">
 𖤓 `!! Yoirin , Zeo !!` 𖤓 
   <p align="center">
-Minor!! DNI 18+ & Toxic's
+Minor!! DNI 20+ & Toxic's
 <p align="center">
 Kins: Naruto Uzumaki, Gaara, Isagi Yoichi, Nico Robin, Maka Albarn, Rachel Gardner, Shoko Nishimiya
 <p align="center">
