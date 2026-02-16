@@ -23,3 +23,17 @@ Minor!! DNI 18+ & Toxic's
 Kins: Naruto Uzumaki, Gaara, Isagi Yoichi, Nico Robin, Maka Albarn, Rachel Gardner, Shoko Nishimiya
 <p align="center">
 discord : zeokamii
+
+<p align="center">
+  <img src="https://i.pinimg.com/originals/ec/a7/5b/eca75b9d4667de0b71a0668a8d57f403.gif" alt="Description of Image" width="500" height="500">
+</p> 
+<p align="center">[PT] Mostly Cosplaying As: 
+<p align="center">BLLK⚽: Isagi Yoichi, Alexis Ness
+<p align="center">KNB🏀: Fem!Kuroko Tetsuya
+<p align="center">NRT🦊:Karin, Konan, Kushina
+<p align="center">OP☠️ : Nefertari Vivi
+
+<p align="center"> NOTES: 
+<p align="center">Oftenly Im offtab or making myself busy, but Im open to c+h!
+<p align="center">I adore conversations and interactions, I might be shy at first so it will take some time for me to be comfortable, so please bear with me! (╥﹏╥)
+
