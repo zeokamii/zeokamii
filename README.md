@@ -30,7 +30,7 @@ discord : zeokamii
 <p align="center">[PT] Mostly Cosplaying As: 
 <p align="center">BLLK⚽: Isagi Yoichi, Alexis Ness
 <p align="center">KNB🏀: Fem!Kuroko Tetsuya
-<p align="center">NRT🦊:Karin, Konan, Kushina
+<p align="center">NRT🦊:Karin Uzumaki, Konan, Kushina Uzumaki, Ino Yamanaka
 <p align="center">OP☠️ : Nefertari Vivi
 
 <p align="center"> NOTES: 
