@@ -33,7 +33,12 @@ discord : zeokamii
 <p align="center">NRT🦊:Karin Uzumaki, Konan, Kushina Uzumaki, Ino Yamanaka
 <p align="center">OP☠️ : Nefertari Vivi
 
+<p align="center">
+  <img src="https://i.pinimg.com/originals/c0/5f/e8/c05fe8658ca0136c0f9fc4d7393401ea.gif" alt="Description of Image" width="500" height="500">
+</p> 
+
 <p align="center"> NOTES: 
 <p align="center">Oftenly Im offtab or making myself busy, but Im open to c+h!
 <p align="center">I adore conversations and interactions, I might be shy at first so it will take some time for me to be comfortable, so please bear with me! (╥﹏╥)
+
 
