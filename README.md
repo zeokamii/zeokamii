@@ -22,6 +22,8 @@ Minor!! DNI 20+ & Toxic's
 <p align="center">
 Kins: Naruto Uzumaki, Gaara, Isagi Yoichi, Nico Robin, Maka Albarn, Rachel Gardner, Shoko Nishimiya
 <p align="center">
+Huge Shipper Of: 🦉🌱 & 🩷🍥
+<p align="center">
 discord : zeokamii
 
 <p align="center">
@@ -41,4 +43,14 @@ discord : zeokamii
 <p align="center">Oftenly Im offtab or making myself busy, but Im open to c+h!
 <p align="center">I adore conversations and interactions, I might be shy at first so it will take some time for me to be comfortable, so please bear with me! (╥﹏╥)
 
+
+<p align="center">
+  <img src="https://i.pinimg.com/736x/c4/06/f7/c406f7ad03412209420da56d34e1bdfb.jpg" alt="Description of Image" width="500" height="500">
+</p> 
+
+<p align="center"> ABOUT ME: 
+<p align="center">INFP-T
+<p align="center">August 28 / Virgo
+<p align="center">She/Her
+<p align="center">Philippines, Mindanao
 
