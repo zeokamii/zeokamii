@@ -48,6 +48,9 @@ discord : zeokamii
 <p align="center">
   <img src="https://i.pinimg.com/736x/c4/06/f7/c406f7ad03412209420da56d34e1bdfb.jpg" alt="Description of Image" width="500" height="500">
 </p> 
+<p align="center">COOL PEOPLE!!
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=zeokamii)<p align="center">
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=zeokamii)<p align="center"> 
 
+<p align="center"><a href="https://github.com/Mewhehe">@Mewhehe</a> @Yannis @Yua/Min <a href="https://github.com/Squeaksagi">@Alyn/Yoichi 
+<p align="center">@everyone who I interacted with
