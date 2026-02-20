@@ -8,12 +8,13 @@ Working on a new strawpage (●'◡'●)
 
 
 <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
+<p align="center"> 
+<a href="https://hits.sh/github.com/silentsoft/hits/"><img alt="Hits" src="https://hits.sh/github.com/silentsoft/hits.svg"/></a>
 <br><br>
-
 <p align="center">🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻
 <p align="center">
   <img src="https://i.pinimg.com/originals/56/f1/e6/56f1e6677c4ef83894d6580922f213dc.gif" alt="Description of Image" width="500" height="500">
-</p>
+</p> 
 
 <p align="center">
 𖤓 `!! Yoirin , Zeo !!` 𖤓 
