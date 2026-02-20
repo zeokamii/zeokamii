@@ -9,8 +9,7 @@ Working on a new strawpage (●'◡'●)
 
 <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 <p align="center"> 
-
-  <br><br>
+<br>
 <p align="center">🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻
 <p align="center">
   <img src="https://i.pinimg.com/originals/56/f1/e6/56f1e6677c4ef83894d6580922f213dc.gif" alt="Description of Image" width="500" height="500">
