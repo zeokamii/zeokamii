@@ -9,8 +9,8 @@ Working on a new strawpage (●'◡'●)
 
 <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 <p align="center"> 
-<a href="https://hits.sh/github.com/silentsoft/hits/"><img alt="Hits" src="https://hits.sh/github.com/silentsoft/hits.svg"/></a>
-<br><br>
+
+  <br><br>
 <p align="center">🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻
 <p align="center">
   <img src="https://i.pinimg.com/originals/56/f1/e6/56f1e6677c4ef83894d6580922f213dc.gif" alt="Description of Image" width="500" height="500">
@@ -50,4 +50,5 @@ discord : zeokamii
   <img src="https://i.pinimg.com/736x/c4/06/f7/c406f7ad03412209420da56d34e1bdfb.jpg" alt="Description of Image" width="500" height="500">
 </p> 
 
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=zeokamii)<p align="center">
 
