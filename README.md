@@ -67,7 +67,7 @@ discord : zeokamii
 <p align="center">@everyone who I interacted with
 <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
-<p align="center">S P E C I A L - M E N T I O N: My KNB babies
+<p align="center">S P E C I A L - M E N T I O N : My GOM babies
 <p align="center">
   <img src="https://i.pinimg.com/originals/d9/c3/0e/d9c30ea590512111beaf82169cdec9cd.gif" alt="Description of Image" width="500" height="500">
   <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
