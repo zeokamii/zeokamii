@@ -66,3 +66,10 @@ discord : zeokamii
 <p align="center"><a href="https://github.com/Mewhehe">@Mewhehe</a> @Yannis @Yua/Min <a href="https://github.com/Squeaksagi">@Alyn/Yoichi 
 <p align="center">@everyone who I interacted with
 <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
+
+<p align="center">S P E C I A L - M E N T I O N: My KNB babies
+<p align="center">
+  <img src="https://i.pinimg.com/originals/d9/c3/0e/d9c30ea590512111beaf82169cdec9cd.gif" alt="Description of Image" width="500" height="500">
+  <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
+  <p align="center"><img src="https://media.discordapp.net/attachments/1185835968759078964/1475194774595178698/image.png?ex=699c99b2&is=699b4832&hm=99f63073daea37d5b68b0ac243acf2ba4f7339c14c213a97147df1ee01afb991&=&format=webp&quality=lossless&width=921&height=461" alt="Description of Image" width="200" height="200">
+  
