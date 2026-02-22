@@ -1,5 +1,11 @@
 <p align="center">
-  <img src="https://i.pinimg.com/originals/00/74/3d/00743d615159e811d22afea14ef7468e.gif" alt="Description of Image" width="1000" height="1000"> <img src="https://github.com/user-attachments/assets/3ff2b9e1-9a1c-4fd7-8a6f-2dad66c5522a" alt="" width="1000" height="500">
+  <img src="https://i.pinimg.com/originals/00/74/3d/00743d615159e811d22afea14ef7468e.gif" alt="Description of Image" width="600" height="700">
+<p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
+<p align="center"> W E L C O M E
+<p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
+<p align="center">!!  S C R O L L !!
+  <br><br>
+  
 <p align="center"> 
   <img src="https://github.com/user-attachments/assets/308c5242-7996-4caf-9231-6f698df6aa43" alt="Description of Image" width="500" height="500">
 </p>
