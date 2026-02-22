@@ -32,6 +32,7 @@ Kins: Naruto Uzumaki, Gaara, Isagi Yoichi, Nico Robin, Maka Albarn, Rachel Gardn
 Huge Shipper Of: 🦉🌱 & 🩷🍥
 <p align="center">
 discord : zeokamii
+<p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
 <p align="center">
   <img src="https://i.pinimg.com/originals/ec/a7/5b/eca75b9d4667de0b71a0668a8d57f403.gif" alt="Description of Image" width="500" height="500">
@@ -39,8 +40,9 @@ discord : zeokamii
 <p align="center">[PT] Mostly Cosplaying As: 
 <p align="center">BLLK⚽: Isagi Yoichi, Alexis Ness
 <p align="center">KNB🏀: Fem!Kuroko Tetsuya
-<p align="center">NRT🦊:Karin Uzumaki, Konan, Kushina Uzumaki, Kankuro, Ino Yamanaka
+<p align="center">NRT🦊:Karin Uzumaki, Konan, Kushina Uzumaki, Kankuro, Ino Yamanaka, Himawari Uzumaki, Mitsuki
 <p align="center">OP☠️ : Nefertari Vivi
+<p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
 <p align="center">
   <img src="https://i.pinimg.com/originals/c0/5f/e8/c05fe8658ca0136c0f9fc4d7393401ea.gif" alt="Description of Image" width="500" height="500">
@@ -52,6 +54,7 @@ discord : zeokamii
 <p align="center">I don't usually chat first, but if I see you're not the type to do so either then I'll do it (Mostly based on my mood)
 <p align="center">INFP-T & Virgo
 <p align="center">My online signature is 💤
+<p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
 <p align="center">
   <img src="https://i.pinimg.com/736x/c4/06/f7/c406f7ad03412209420da56d34e1bdfb.jpg" alt="Description of Image" width="500" height="500">
@@ -62,3 +65,4 @@ discord : zeokamii
 
 <p align="center"><a href="https://github.com/Mewhehe">@Mewhehe</a> @Yannis @Yua/Min <a href="https://github.com/Squeaksagi">@Alyn/Yoichi 
 <p align="center">@everyone who I interacted with
+<p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
