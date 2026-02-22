@@ -42,6 +42,7 @@ discord : zeokamii
 <p align="center"> NOTES: 
 <p align="center">Oftenly Im offtab or making myself busy, but Im open to c+h!
 <p align="center">I adore conversations and interactions, I might be shy at first so it will take some time for me to be comfortable, so please bear with me! (╥﹏╥)
+<p align="center">I don't usually chat first, but if I see you're not the type to do so either then I'll do it (Mostly based on my mood)
 <p align="center">INFP-T & Virgo
 <p align="center">My online signature is 💤
 
