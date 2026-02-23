@@ -39,8 +39,8 @@ discord : zeokamii
 </p> 
 <p align="center">[PT] Mostly Cosplaying As: 
 <p align="center">BLLK⚽: Isagi Yoichi, Alexis Ness
-<p align="center">KNB🏀: Fem!Kuroko Tetsuya
-<p align="center">NRT🦊:Karin Uzumaki, Konan, Kushina Uzumaki, Kankuro, Ino Yamanaka, Himawari Uzumaki, Mitsuki
+<p align="center">KNB🏀: Kuroko Tetsuya, Momoi Satsuki, Riko Aida
+<p align="center">NRT🦊:Karin Uzumaki, Konan, Kushina Uzumaki, Kankuro, Ino Yamanaka, Himawari Uzumaki
 <p align="center">OP☠️ : Nefertari Vivi
 <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
