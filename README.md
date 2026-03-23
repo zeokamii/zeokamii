@@ -6,8 +6,6 @@
 <p align="center">!!  S C R O L L !!
   <br><br>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jjn6vsrwknnun5fuhh2zrlgwvy&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile) <p align="center">  
-
 <p align="center"> 
   <img src="https://github.com/user-attachments/assets/308c5242-7996-4caf-9231-6f698df6aa43" alt="Description of Image" width="500" height="500">
 </p>
