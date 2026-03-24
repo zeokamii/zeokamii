@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.pinimg.com/originals/a1/58/3d/a1583d1079c389aee4f6a4b01173eb4b.gif" alt="Description of Image" width="600" height="700">
+  <img src="https://i.pinimg.com/originals/a1/58/3d/a1583d1079c389aee4f6a4b01173eb4b.gif" alt="Description of Image" width="800" height="1000">
 <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 <p align="center"> W E L C O M E
 <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
