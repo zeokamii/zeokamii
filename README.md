@@ -1,6 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=zeokamii)<p align="center"> 
 <p align="center">
-  <img src="https://i.pinimg.com/originals/a1/58/3d/a1583d1079c389aee4f6a4b01173eb4b.gif" alt="Description of Image" width="800" height="1000">
+  <img src="https://i.pinimg.com/originals/a1/58/3d/a1583d1079c389aee4f6a4b01173eb4b.gif" alt="Description of Image" width="600" height="7000">
 <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
 <p align="center">COOL PEOPLE!!
@@ -18,7 +18,7 @@
 <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 <p align="center"> W E L C O M E
 <p align="center"> 
-  <img src="https://github.com/user-attachments/assets/308c5242-7996-4caf-9231-6f698df6aa43" alt="Description of Image" width="800" height="1000">
+  <img src="https://github.com/user-attachments/assets/308c5242-7996-4caf-9231-6f698df6aa43" alt="Description of Image" width="600" height="700">
 </p>
 
 <p align="center"><a href="https://zeokamii.atabook.org/">ATABOOK</a> 🍥 <a href="https://kamizou.straw.page">STRAWPAGE</a>
