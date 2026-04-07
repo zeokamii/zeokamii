@@ -1,6 +1,8 @@
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=zeokamii)<p align="center"> 
 <p align="center">
-  <img src="https://i.pinimg.com/originals/a1/58/3d/a1583d1079c389aee4f6a4b01173eb4b.gif" alt="Description of Image" width="600" height="7000">
+  <img src="https://komarev.com/ghpvc/?username=zeokamii" alt="Profile view counter" />
+</p>
+<p align="center">
+  <img src="https://i.pinimg.com/originals/20/28/26/202826830360140b3cc1da7f99d6a2a4.gif" alt="Description of Image" width="600" height="7000">
 <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
 <p align="center">COOL PEOPLE!!
@@ -10,10 +12,14 @@
 <p align="center">@everyone who I interacted with
 <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jjn6vsrwknnun5fuhh2zrlgwvy&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=f1723b)](https://github.com/kittinan/spotify-github-profile)
-
  <p align="center"> <img src="https://i.pinimg.com/originals/d9/c3/0e/d9c30ea590512111beaf82169cdec9cd.gif" alt="Description of Image" width="500" height="500">
   <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31jjn6vsrwknnun5fuhh2zrlgwvy&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=f1723b" />
+  </a>
+</p>
   
 <p align="center">!!  S C R O L L !!
   <br><br>
