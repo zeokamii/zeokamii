@@ -10,6 +10,8 @@
 <p align="center">@everyone who I interacted with
 <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jjn6vsrwknnun5fuhh2zrlgwvy&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=f1723b)](https://github.com/kittinan/spotify-github-profile)
+
  <p align="center"> <img src="https://i.pinimg.com/originals/d9/c3/0e/d9c30ea590512111beaf82169cdec9cd.gif" alt="Description of Image" width="500" height="500">
   <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
   
