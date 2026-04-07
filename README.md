@@ -12,16 +12,17 @@
 <p align="center">@everyone who I interacted with
 <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
+
  <p align="center"> <img src="https://i.pinimg.com/originals/d9/c3/0e/d9c30ea590512111beaf82169cdec9cd.gif" alt="Description of Image" width="500" height="500">
   <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
+
+  <p align="center">!!  S C R O L L !!
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31jjn6vsrwknnun5fuhh2zrlgwvy&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=f1723b" />
   </a>
 </p>
-  
-<p align="center">!!  S C R O L L !!
   <br><br>
 <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 <p align="center"> W E L C O M E
