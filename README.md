@@ -2,7 +2,7 @@
   <img src="https://komarev.com/ghpvc/?username=zeokamii" alt="Profile view counter" />
 </p>
 <p align="center">
-  <img src="https://i.pinimg.com/originals/20/28/26/202826830360140b3cc1da7f99d6a2a4.gif" alt="Description of Image" width="600" height="7000">
+  <img src="https://i.pinimg.com/originals/60/17/18/6017185714be69a6164a08fc4c7e0b9c.gif" alt="Description of Image" width="600" height="7000">
 <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
 <p align="center">COOL PEOPLE!!
