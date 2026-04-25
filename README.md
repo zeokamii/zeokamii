@@ -4,7 +4,7 @@
   <img src="https://komarev.com/ghpvc/?username=zeokamii" alt="Profile view counter" />
 </p>
 <p align="center">
-  <img src="https://i.pinimg.com/originals/60/17/18/6017185714be69a6164a08fc4c7e0b9c.gif" alt="Description of Image" width="600" height="7000">
+  <img src="https://i.pinimg.com/originals/60/17/18/6017185714be69a6164a08fc4c7e0b9c.gif" alt="Description of Image" width="700" height="500">
 <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
 <p align="center">COOL PEOPLE!!
@@ -15,7 +15,7 @@
 <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
 
- <p align="center"> <img src="https://i.pinimg.com/originals/d9/c3/0e/d9c30ea590512111beaf82169cdec9cd.gif" alt="Description of Image" width="500" height="500">
+ <p align="center"> <img src="https://i.pinimg.com/originals/d9/c3/0e/d9c30ea590512111beaf82169cdec9cd.gif" alt="Description of Image" width="700" height="500">
   <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
   <p align="center">!!  S C R O L L !!
@@ -30,7 +30,7 @@
   <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
     <br>
 <p align="center"> 
-  <img src="https://github.com/user-attachments/assets/308c5242-7996-4caf-9231-6f698df6aa43" alt="Description of Image" width="600" height="700">
+  <img src="https://github.com/user-attachments/assets/308c5242-7996-4caf-9231-6f698df6aa43" alt="Description of Image" width="700" height="500">
 </p>
 
 <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
@@ -49,7 +49,7 @@ discord : zeokamii
 <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
 <p align="center">
-  <img src="https://i.pinimg.com/originals/ec/a7/5b/eca75b9d4667de0b71a0668a8d57f403.gif" alt="Description of Image" width="500" height="500">
+  <img src="https://i.pinimg.com/originals/ec/a7/5b/eca75b9d4667de0b71a0668a8d57f403.gif" alt="Description of Image" width="700" height="500">
 </p> 
 <p align="center">[PT] Mostly Cosplaying As: 
 <p align="center">BLLK⚽: Isagi Yoichi, Alexis Ness
@@ -59,7 +59,7 @@ discord : zeokamii
 <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
 <p align="center">
-  <img src="https://i.pinimg.com/originals/c0/5f/e8/c05fe8658ca0136c0f9fc4d7393401ea.gif" alt="Description of Image" width="500" height="500">
+  <img src="https://i.pinimg.com/originals/c0/5f/e8/c05fe8658ca0136c0f9fc4d7393401ea.gif" alt="Description of Image" width="700" height="500">
 </p> 
 
 <p align="center"> NOTES: 
@@ -71,5 +71,5 @@ discord : zeokamii
 <p align="center"> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
 <p align="center">
-  <img src="https://i.pinimg.com/736x/c4/06/f7/c406f7ad03412209420da56d34e1bdfb.jpg" alt="Description of Image" width="500" height="500">
+  <img src="https://i.pinimg.com/736x/c4/06/f7/c406f7ad03412209420da56d34e1bdfb.jpg" alt="Description of Image" width="700" height="500">
 </p> 
